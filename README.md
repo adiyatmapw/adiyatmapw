@@ -1,6 +1,6 @@
-### Hi there 👋
+### Introduction
 
-# Halo semua! 
+# Hello Everyone !
 My name is **Adiyatma Pratama W.**.\
 I am **Industrial Engineering Student** at [Telkom University](https://telkomuniversity.com).\
 Let's connect to my [Linkedin](https://www.linkedin.com/in/adiyatmapw)!
